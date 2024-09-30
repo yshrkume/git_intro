@@ -1,2 +1,1 @@
 Yasuhiro Kume
-12
